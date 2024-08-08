@@ -1,5 +1,5 @@
 Meu nome é Vitor 🪴
-Amo plantas🌱
+🌿Amo plantas🌱
 Meu intagram :Vitor09022009 🌠
-Moro em Mandaguari no Párana 
-Tenho interesse muito grande por casas lindas e acolhedoras 
+Moro em Mandaguari no Párana 💜 
+🌹🏡Tenho interesse muito grande por casas lindas e acolhedoras com diversas plantas penduradas 🌱 e alguns gatos🐈
